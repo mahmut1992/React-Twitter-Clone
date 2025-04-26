@@ -41,9 +41,7 @@
 ## 📸 App Screenshot
 
 
-
-Uploading Zight Recording 2025-04-26 at 10.15.02 PM.mp4…
-
+https://github.com/user-attachments/assets/c9fe979a-aaa4-49b4-bd7c-fba4092f4633
 
 
 ---
